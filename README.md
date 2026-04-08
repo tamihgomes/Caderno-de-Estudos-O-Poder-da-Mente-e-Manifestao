@@ -80,5 +80,6 @@ O Subconsciente: Funciona como a "sala de máquinas" de um navio, executando ord
 "Explique a diferença entre a Lei da Atração e a Lei da Suposição com exemplos práticos."
 
 Acesse também o Guia Prático de Ativação do Neural para o sucesso: 
+[Baixar Material](./the_neural_blueprint.pdf)
 
 
